@@ -1,4 +1,4 @@
-# KomaroDlc 1.21.4 (Rename of Zenith 1.21.4)
+# KomaroDlc 1.21.4 (skid of this https://yougame.biz/threads/367078/)
 Cr!ck 1.21.4 
 
 
